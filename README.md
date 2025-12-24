@@ -1,0 +1,1 @@
+# scratch_hidden_blocks
